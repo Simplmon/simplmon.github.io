@@ -1,4 +1,4 @@
 # Simplmon
 
-Sigma
-ligma
+skibidi   
+toilet
